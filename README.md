@@ -1,2 +1,3 @@
 # cs3240-labdemo
-my marth is legit
+yo gotti this is da readme.txt, my marth is legit
+
